@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### ✨ Hello! 👋🫣
+- 💬 Ask me about ...🔆
 <!--
 **thanthanmoe/thanthanmoe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
